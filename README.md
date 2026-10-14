@@ -1,1 +1,1 @@
-# ArtBots XATSpace / Bot Profile Administrato iArt(1926)
+# ArtBots XATSpace / Bot Profile Administrator iArt(1926)
